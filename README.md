@@ -1,4 +1,4 @@
-## Boas vindas ao meu perfil 🐧
+## Boas vindas ao meu perfil 🟢
 
 Meu nome é Julio cesar
 
@@ -10,6 +10,6 @@ Meu nome é Julio cesar
 
 juliocesarcajobi@gmail.com.br
 
-![](https://tenor.com/pt-BR/view/shrek-norizz-gif-2694464858120183470)
+![](https://media1.tenor.com/m/mtiOW6O-k8YAAAAd/shrek-shrek-rizz.gif)
 
 
