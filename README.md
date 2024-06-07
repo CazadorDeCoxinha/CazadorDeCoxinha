@@ -10,6 +10,6 @@ Meu nome é Julio cesar
 
 juliocesarcajobi@gmail.com.br
 
-![]https://tenor.com/pt-BR/view/shrek-norizz-gif-2694464858120183470
+![](https://tenor.com/pt-BR/view/shrek-norizz-gif-2694464858120183470)
 
 
